@@ -1,0 +1,2 @@
+# christine
+belajar ai
